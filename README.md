@@ -17,21 +17,18 @@ moon maap simple bget😁
 
 ## Informasi
 
-gua pake codenya dri naruyaizumi jir, (tq bgt nih)
 mon maap klo simple jelek burik kaya epep gini yaa
-dan klo mau donlod link command ini!
-klik tautan dibawah coy
-https
+soalnya nyoba² coy gabut😁 kasi apalagi ya
 
 dan jangan lupa liat web payment juga coy dibawah 😁⚡
-[꒰⟡꒱ Payment LuxSence](https://linkbio.co/naruyaizumi)
+[꒰⟡꒱ Payment LuxSence](https://lux-sencestoreid.vercel.app)
 
 gatau foto siapa
 ![metadata](https://i.supa.codes/kKcA8Q)
 
 > **Copyright © 2024 - 2025 LuxSencee**
 
-[꒰⚘꒱ Admin Contact ꒱⟡](https://linkbio.co/naruyaizumi)
+[꒰⚘꒱ Dev Contact ꒱⟡](wa.me/62)
 
 Udah ah males yapping
 
