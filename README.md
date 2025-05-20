@@ -11,22 +11,28 @@
   <a href="https://www.npmjs.com/package/naruyaizumi"><img src="https://img.shields.io/npm/v/naruyaizumi?color=blue&label=naruyaizumi&logo=npm" alt="npm version"></a>
 </p>
 
-Baileys adalah library TypeScript berbasis WebSocket untuk berinteraksi dengan WhatsApp Web API.
+Hi my name is LuxSence, I learn javascript, I want to know about javascript, nice to meet you
+(inggris bgt jir)
+moon maap simple bget😁
 
 ## Informasi
 
-Paket ini `membutuhkan` Node.js versi **20 atau lebih tinggi** untuk berjalan.
+gua pake codenya dri naruyaizumi jir, (tq bgt nih)
+mon maap klo simple jelek burik kaya epep gini yaa
+dan klo mau donlod link command ini!
+klik tautan dibawah coy
+https
 
-Proyek ini secara eksplisit ditujukan untuk lingkungan modern dan tidak mendukung Node versi lama. Dukungan akan selalu mengikuti versi LTS terbaru dari Node.js untuk menjaga performa dan kompatibilitas dengan ekosistem terbaru.
+dan jangan lupa liat web payment juga coy dibawah 😁⚡
+[꒰⟡꒱ Payment LuxSence](https://linkbio.co/naruyaizumi)
 
+gatau foto siapa
 ![metadata](https://i.supa.codes/kKcA8Q)
 
-> **Copyright © 2024 - 2025 Naruya Izumi**
+> **Copyright © 2024 - 2025 LuxSencee**
 
 [꒰⚘꒱ Admin Contact ꒱⟡](https://linkbio.co/naruyaizumi)
 
+Udah ah males yapping
 
-## Menghubungkan Akun
-
-Baileys mendukung koneksi ke WhatsApp melalui API multi-perangkat.  
-Kamu bisa menghubungkan akun dengan dua metode utama: **Kode QR** atau **Kode Pairing**.
+## TQTO
