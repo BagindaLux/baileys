@@ -44,7 +44,10 @@ si imut dri laut jogja🤭
 4. Logo jb/poster jb
 5. murbug
 6. Jasa create web store/macam ni/bucin⚡
-7. create sc bug/cpanel
+7. Create sc bug/cpanel
+8. Create database github/pw di sc bot wa
+9. Code html web (bebas rename)
+10. Tutor cara uploud di web 
 
 ## TQTO
 
