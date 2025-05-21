@@ -47,11 +47,11 @@ si imut dri laut jogja🤭
 8. Jasbug
 9. murbug
 10. Logo jb/poster jb
-11. Jasa create web store/macam ni/bucin⚡
-12. Create sc bug
-13. Create database github/pw di sc bot wa/tele
-14. Code html web (bebas rename)
-15. Tutor cara uploud di web
+11. Jasa create web store<br>[contoh] [꒰⚘꒱ Payment LuxStoree](https://lux-senceestoreid.vercel.app)
+13. Create sc bug
+14. Create database github/pw di sc bot wa/tele
+15. Code html web (bebas rename)
+16. Tutor cara uploud di web
 
 ## TQTO
 
