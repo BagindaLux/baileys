@@ -2,7 +2,7 @@
 
 <div align='center'>
 
-![WhatsApp API](https://i.supa.codes/kyWCSZ)
+![WhatsApp API](https://i.supa.codes/dBd3Ba)
 
 </div>
 
@@ -20,18 +20,20 @@ If you have any text/what you want to write on this website, just send it to Dev
 
 moon maap simple bget😁
 
-## Detail
+## Dev
 
-mon maap klo simple jelek burik kaya epep gini yaa
-soalnya nyoba² coy gabut😁
+⚡ [꒰⟡꒱ Payment LuxSencee ꒱⟡](https://lux-senceestoreid.vercel.app)
 
-dan jangan lupa liat web payment juga coy dibawah 😁⚡
-[꒰⟡꒱ Payment LuxSencee](https://lux-senceestoreid.vercel.app)
+⚡ [꒰⚘꒱ Ingsagram ꒱⟡](https://instagram.com/luxzzz92)
 
-⚡ [꒰⚘꒱ Dev Contact ꒱⟡](wa.me/62)
+⚡ [꒰⚘꒱ Via WhatsApp ꒱⟡](wa.me/62)
+
+⚡ [꒰⚘꒱ Via Telegram ꒱⟡](t.me/BagindaLux)
 
 ## Tehyung Versi Beta
-![metadata](https://i.supa.codes/kKcA8Q)
+si imut dri laut jogja🤭
+
+![metadata](https://i.supa.codes/KO9yx3)
 
 > **Copyright © 2024 - 2025 LuxSencee**
 
