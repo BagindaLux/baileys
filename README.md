@@ -22,11 +22,11 @@ If you have any text/what you want to write on this website, just send it to Dev
 
 ⚡ [꒰⟡꒱ Payment LuxSencee ꒱⟡](https://lux-senceestoreid.vercel.app)
 
-⚡ [꒰⚘꒱ Ingsagram ꒱⟡](https://instagram.com/luxzzz92)
+⚡ [꒰⚘꒱ Igeh ꒱⟡](https://instagram.com/luxzzz92)
 
-⚡ [꒰⚘꒱ Via WhatsApp ꒱⟡](wa.me/62)
+⚡ [꒰⚘꒱ Wangcap ꒱⟡](wa.me/62)
 
-⚡ [꒰⚘꒱ Via Telegram ꒱⟡](t.me/BagindaLux)
+⚡ [꒰⚘꒱ Teleh ꒱⟡](t.me/BagindaLux)
 
 ## Tehyung Versi Beta
 si imut dri laut jogja🤭
