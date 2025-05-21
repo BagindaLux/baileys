@@ -38,9 +38,15 @@ si imut dri laut jogja🤭
 > **Copyright © 2024 - 2025 LuxSencee**
 
 
-## DETAIL
+## LIST READY STORE LUX
 
-saran text😹
+1. All sc bot wa
+2. Panel bot 1gb-unli
+3. Jasbug
+4. Logo jb/poster jb
+5. murbug
+6. Jasa create web store/macam ni/bucin⚡
+7. create sc bug/cpanel
 
 ## TQTO
 
