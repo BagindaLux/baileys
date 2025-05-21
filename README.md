@@ -38,8 +38,18 @@ si imut dri laut jogja🤭
 > **Copyright © 2024 - 2025 LuxSencee**
 
 
-## YAPPING DIKIT
+## DETAIL
 
-
+saran text😹
 
 ## TQTO
+
+Allah Swt
+
+Keluarga
+
+Man teman
+
+All dev web/sepuh
+
+Para pembenci🤭
