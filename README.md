@@ -39,15 +39,18 @@ si imut dri laut jogja🤭
 ## LIST READY STORE LUX
 
 1. All sc bot wa
-2. Panel bot 1gb-unli
-3. Jasbug
-4. Logo jb/poster jb
-5. murbug
-6. Jasa create web store/macam ni/bucin⚡
-7. Create sc bug/cpanel
-8. Create database github/pw di sc bot wa
-9. Code html web (bebas rename)
-10. Tutor cara uploud di web 
+2. Base bot wa/tele simple
+3. Panel bot 1gb-unli
+4. reseller panel
+5. Pt sc bug natus/vortex via wa/tele 
+6. Jasbug
+7. Logo jb/poster jb
+8. murbug
+9. Jasa create web store/macam ni/bucin⚡
+10. Create sc bug
+11. Create database github/pw di sc bot wa/tele
+12. Code html web (bebas rename)
+13. Tutor cara uploud di web 
 
 ## TQTO
 
