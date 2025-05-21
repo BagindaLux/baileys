@@ -18,8 +18,6 @@ If you have any text/what you want to write on this website, just send it to Dev
 
 (inggris bgt jir)
 
-moon maap simple bget😁
-
 ## Dev
 
 ⚡ [꒰⟡꒱ Payment LuxSencee ꒱⟡](https://lux-senceestoreid.vercel.app)
